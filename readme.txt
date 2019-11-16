@@ -1,1 +1,1 @@
-konsento
+konsentosyoukaki
